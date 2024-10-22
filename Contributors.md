@@ -13,6 +13,7 @@
 - Ram Ram ji!!! I am Abhinav Pareek 😄 (https://github.com/abhinavpareek655)
 - Hello welcome to my world m sushmita. Do you know me??????
 - Hello My name is Preston Mayieka (https://github.com/preston176)
+- Hello My name is Yash Rajak (https://github.com/karma2912)
 Hello World! I'm Oroitz Lago Ramos, I'm glad to start this new Open Source adventure!
 - Hello My name is Abdulquddus Ibrahim (https://github.com/xclusive09)
 - Hey 👋 I'm [HorebZ](https://github.com/HorebZ)
